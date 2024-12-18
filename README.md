@@ -4,7 +4,7 @@
 
 Welcome to BLUE — a simple and intuitive project designed for everyone, even if you're not a coder! With BLUE, you can explore innovative solutions without needing technical skills. We're here to make technology accessible and fun for all.
 
-"Saya hanya seseorang script kiddie."
+"I'm just a ceedie script person."
 
 🌟 What You Can Do with BLUE
 
