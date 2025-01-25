@@ -56,11 +56,4 @@ A: Visit our GitHub Issues page or reach out via email.
 We're here to help! Reach out anytime:
 
 YouTube: BlueSecc 
-Instagram : BlueSecc 
-
-GitHub Issues: Open an issue
-
-🛡️ License
-
-This project is licensed under the MIT License.
-BLUE — Innovation for Everyone, No Coding Required.
+Instagram : bluesecc____
