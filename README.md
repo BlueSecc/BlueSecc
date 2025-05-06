@@ -24,7 +24,6 @@
 
 
 > "When everything goes wrong, these civilized people will eat each other."
-— Joker, The Dark Knight
 
 ## 💻ARE YOU LOST?🖥️ 
 - 🟢 NEVER APOLOGIZE, IF YOU ARE THE SMARTEST PERSON IN THE ROOM!
