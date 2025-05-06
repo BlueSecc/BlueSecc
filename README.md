@@ -11,7 +11,7 @@
 
 ---
 
-### BlueSecc / README.md
+### FUCK U
 
 **BLUE**  
 *Where Innovation Meets Accessibility*
