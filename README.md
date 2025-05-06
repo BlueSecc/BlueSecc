@@ -4,13 +4,32 @@
 
 ![BLUE Banner](https://wallpapers.com/images/hd/hacker-anonymous-matrix-full-hd-vogwxarkmo3ia8ad.jpg)
 
-## 🧠 Welcome to BLUE
+## 🧠 THE CRIMINALS SAID
 
-**BLUE** is a sleek, hacker-inspired project designed for *everyone* — whether you're a script kiddie or a total beginner. With an interface that whispers secrets and glows in green, BLUE helps you explore tech without ever touching code.
+**BLUE** THE CRIMINALS SAID
 
-> *"I'm just a ceedie script person."*
+> "Why so serious?"
+— Joker, The Dark Knight
 
----
+
+
+> "If you're good at something, never do it for free."
+— Joker, The Dark Knight
+
+
+
+> "Everything burns!"
+— Joker, The Dark Knight
+
+
+
+> "Do I really look like a guy with a plan?"
+— Joker, The Dark Knight
+
+
+
+> "When everything goes wrong, these civilized people will eat each other."
+— Joker, The Dark Knight
 
 ## 💻ARE YOU LOST?🖥️ 
 - 🟢 NEVER APOLOGIZE, IF YOU ARE THE SMARTEST PERSON IN THE ROOM!
