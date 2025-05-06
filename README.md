@@ -8,22 +8,18 @@
 ***🧠THE CRIMINALS SAID🧠***
 
 > "Why so serious?"
-— Joker, The Dark Knight
 
 
 
 > "If you're good at something, never do it for free."
-— Joker, The Dark Knight
 
 
 
 > "Everything burns!"
-— Joker, The Dark Knight
 
 
 
 > "Do I really look like a guy with a plan?"
-— Joker, The Dark Knight
 
 
 
