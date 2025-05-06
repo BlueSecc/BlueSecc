@@ -6,7 +6,7 @@
 
 ## 🧠 THE CRIMINALS SAID
 
-**BLUE** THE CRIMINALS SAID
+***THE CRIMINALS SAID***
 
 > "Why so serious?"
 — Joker, The Dark Knight
