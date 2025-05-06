@@ -4,9 +4,8 @@
 
 ![BLUE Banner](https://wallpapers.com/images/hd/hacker-anonymous-matrix-full-hd-vogwxarkmo3ia8ad.jpg)
 
-## 🧠 THE CRIMINALS SAID
 
-***THE CRIMINALS SAID***
+***🧠THE CRIMINALS SAID🧠***
 
 > "Why so serious?"
 — Joker, The Dark Knight
