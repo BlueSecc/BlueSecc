@@ -1,11 +1,12 @@
 # 🕶️ ph3lixx | I will help you as much as I can
 
 > "Technology should be powerful, accessible, and just a little mysterious."
-
+> 
 ![BLUE Banner](https://media2.giphy.com/media/4OAxDXv4RdUeg38JYi/giphy.gif?cid=6c09b952ug0cyozv85q38vqq50uxr74qb56gl4h8g3tfy0j4&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=g)
 
 
 ***🧠THE CRIMINALS SAID🧠***
+![BLUE Banner](https://media3.giphy.com/media/eY1cJTWCuTC7l7IjtP/giphy.gif?cid=6c09b952nracs546n9f9jek5x06skv3asjzmcbhkonv62x2y&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=g)
 
 > "Why so serious?"
 
@@ -34,3 +35,5 @@
 ---
 
 > 🎩BEHIND THE SCREEN THERE IS A LUMP OF FLESH FILLED WITH IDEAS, AND THAT IDEAS ARE BULLETPROOF 🎩
+
+![BLUE Banner](https://media4.giphy.com/media/3oKIPa3AeDQ56ntX4k/giphy.gif?cid=6c09b952ojrfo3035g5ssm3a2yay1h9pq6le783sp04rr301&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=g)
